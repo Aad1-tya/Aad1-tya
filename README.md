@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Aad1-tya
-- 💞️ I’m looking to collaborate on nothing now but surely in future
+- 💞️ I’m looking to collaborate on new projects
 - 📫 How to reach me https://www.linkedin.com/in/aadityasinghtomar/
 
 <!---
